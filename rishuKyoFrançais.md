@@ -9,135 +9,111 @@ Dai Biroshana résidait alors dans le palais du Yokukai Takejizai Tennô dans le
 Il était accompagné par une foule de 80 myriades de bodhisattva dont le Grand Être Kongô Shu, le Grand Être Kanjizai Bosatsu, le Grand Être Kokûzô Bosatsu, le Grand Être Kongô Ken, le Grand Être Monjushiri Bosatsu, le Grand être Kokûko Bosatsu et le Grand Être Sai Hosshin Tenbôrin Bosatsu3.
 
 En compagnie de cette foule de grand Bodhisattvas, circumambulé et révéré par eux il exposa l'Enseignement bon en son début, bon en son milieu et en sa fin(shochûgo), exquis dans ses mots et leur portée, d'une pure unité, parfaitement satisfaisant, immaculé et intégral.
-CHAPITRE 2(243-784B02)
+##CHAPITRE 2##(243-784B02)
 
 Il expliqua alors la doctrine des « Expressions de la pureté des tous les dharmas" »en ces mots:
 
-« L'expression « pureté de l'extase exquise »(myoteki shôjô) est l'étape de la certitude pour le Bodhisattva(bosatsu i).
+>« L'expression « pureté de l'extase exquise »(myoteki shôjô) est l'étape de la certitude pour le Bodhisattva(bosatsu i).
+>L'expression « pureté de la flèche »(yokusen shôjô) du désir est l'étape de la certitude pour le Bodhisattva.
+>L'expression « pureté du toucher (soku shôjô)» est l'étape de la certitude pour le Bodhisattva.
+>L'expression « pureté du lien d'amour »(aibaku shôjô) est l'étape de la certitude pour le Bodhisattva.
+>L'expression « pureté de la souveraineté »(jizai shôjô) est l'étape de la certitude pour le Bodhisattva.
+>L'expression « pureté de la vue »(ken shôjô) est l'étape de la certitude pour le Bodhisattva.
+>L'expression « pureté du ravissement »(tekietsu shôjô) est l'étape de la certitude pour le Bodhisattva.
+>L'expression « pureté du désir »(ai shôjô) est l'étape de la certitude pour le Bodhisattva.
+>L'expression « pureté de la fierté »(man shôjô) est l'étape de la certitude pour le Bodhisattva.
+>L'expression "pureté de l'ornement"(shoubon shôjô) est l'étape de la certitude pour le Bodhisattva.
+>L'expression « pureté des sables mouvant de la pléthore mentale »(iji jaku shôjô) est l'étape de la certitude pour le >Bodhisattva.
+>L'expression « pureté de la lumière »(komyô shôjô) est l'étape de la certitude pour le Bodhisattva.
+>L'expression « pureté de l'extase corporelle »(shingyô shôjô) est l'étape de la certitude pour le Bodhisattva.
+>L'expression « pureté de la forme »(shiki shôjô)est l'étape de la certitude pour le Bodhisattva.
+>L'expression « pureté du son »(shô shôjô) est l'étape de la certitude pour le Bodhisattva.
+>L'expression « pureté de l'olfaction »(kô shôjô) est l'étape de la certitude pour le Bodhisattva.
+>L'expression « pureté du goût »(mi shôjô) est l'étape de la certitude pour le Bodhisattva.
 
-L'expression « pureté de la flèche »(yokusen shôjô) du désir est l'étape de la certitude pour le Bodhisattva.
+>Pourquoi en est-il ainsi? Parce que tous les dharmas en leur nature propre sont purs(jishô shôjô), la Prajna-paramita est pure. Kongô Shu, si quiconque entend le principe de la Prajna-paramita qui sous-tend ces expressions manifestant la pureté, il atteindra le bodhi manda et les obstacles des passions(bonnoshô), les obstacles au Dharma(hôshô), les obstacles du karma(gôshô) et même les accumulations considérables d'habitudes(setsukô shakujo) ne le jetterons pas dans les destinées infernales. Ce ne sera alors pas difficile de réduire à néant(jômetsu) les péchés les plus graves(juzai).
 
-L'expression « pureté du toucher (soku shôjô)» est l'étape de la certitude pour le Bodhisattva.
+>Si on est à même de recevoir ce Prêche, de le retenir et de le réciter quotidiennement, que l'on y réfléchisse et le médite, dans cette vie même on atteindra le « samadhi admantin »(kongô samaji),la « souveraineté sur tous les phénomènes »(oissaihô kaitoku jizai) et recevra la joie d'innombrables extases(muriyô tekietsu kanki). Traversant les vies des Juroku Dai Bosatsu on atteindra l' Ainsi-allé et le stage du « Celui qui tient le vajra »(shû kongô).»
 
-L'expression « pureté du lien d'amour »(aibaku shôjô) est l'étape de la certitude pour le Bodhisattva.
+Alors, le Seigneur Kongô Shu Bosatsu, le Grand-être, l'excellent « Être tenant le vajra de tous les mandalas de tous les pactes des Ainsi-allés »(issai mandara jikongô shôsatsu) qui subjugue sans répit dans les trois cosmes et accomplis toutes les intentions, était sur le point d'éclaircir un peu plus le sens de cet Enseignement. Il se détendit et esquissa un sourire. De senestre il fit le mudra de la »Fierté adamantine »(kongôman), de sa dextre il saisit le « Grand Vajra originel »(honshô daikongo). Alors il suscita la « Vigueur de la progression courageuse »(yushinsei) et expliqua l' « Essence du  Sacrement propice du Vajra de Grande-Extase »: 
+>« Hûm ».
 
-L'expression « pureté de la souveraineté »(jizai shôjô) est l'étape de la certitude pour le Bodhisattva.
-
-L'expression « pureté de la vue »(ken shôjô) est l'étape de la certitude pour le Bodhisattva.
-
-L'expression « pureté du ravissement »(tekietsu shôjô) est l'étape de la certitude pour le Bodhisattva.
-
-L'expression « pureté du désir »(ai shôjô) est l'étape de la certitude pour le Bodhisattva.
-
-L'expression « pureté de la fierté »(man shôjô) est l'étape de la certitude pour le Bodhisattva.
-
-L'expression "pureté de l'ornement"(shoubon shôjô) est l'étape de la certitude pour le Bodhisattva.
-
-L'expression « pureté des sables mouvant de la pléthore mentale »(iji jaku shôjô) est l'étape de la certitude pour le Bodhisattva.
-
-L'expression « pureté de la lumière »(komyô shôjô) est l'étape de la certitude pour le Bodhisattva.
-
-L'expression « pureté de l'extase corporelle »(shingyô shôjô) est l'étape de la certitude pour le Bodhisattva.
-
-L'expression « pureté de la forme »(shiki shôjô)est l'étape de la certitude pour le Bodhisattva.
-
-L'expression « pureté du son »(shô shôjô) est l'étape de la certitude pour le Bodhisattva.
-
-L'expression « pureté de l'olfaction »(kô shôjô) est l'étape de la certitude pour le Bodhisattva.
-
-L'expression « pureté du goût »(mi shôjô) est l'étape de la certitude pour le Bodhisattva.
-
-Pourquoi en est-il ainsi? Parce que tous les dharmas en leur nature propre sont purs(jishô shôjô), la Prajna-paramita est pure. Kongô Shu, si quiconque entend le principe de la Prajna-paramita qui sous-tend ces expressions manifestant la pureté, il atteindra le bodhi manda et les obstacles des passions(bonnoshô), les obstacles au Dharma(hôshô), les obstacles du karma(gôshô) et même les accumulations considérables d'habitudes(setsukô shakujo) ne le jetterons pas dans les destinées infernales. Ce ne sera alors pas difficile de réduire à néant(jômetsu) les péchés les plus graves(juzai).
-
-Si on est à même de recevoir ce Prêche, de le retenir et de le réciter quotidiennement, que l'on y réfléchisse et le médite, dans cette vie même on atteindra le « samadhi admantin »(kongô samaji),la « souveraineté sur tous les phénomènes »(oissaihô kaitoku jizai) et recevra la joie d'innombrables extases(muriyô tekietsu kanki). Traversant les vies des Juroku Dai Bosatsu on atteindra l' Ainsi-allé et le stage du « Celui qui tient le vajra »(shû kongô).»
-
-Alors, le Seigneur Kongô Shu Bosatsu, le Grand-être, l'excellent « Être tenant le vajra de tous les mandalas de tous les pactes des Ainsi-allés »(issai mandara jikongô shôsatsu) qui subjugue sans répit dans les trois cosmes et accomplis toutes les intentions, était sur le point d'éclaircir un peu plus le sens de cet Enseignement. Il se détendit et esquissa un sourire. De senestre il fit le mudra de la »Fierté adamantine »(kongôman), de sa dextre il saisit le « Grand Vajra originel »(honshô daikongo). Alors il suscita la « Vigueur de la progression courageuse »(yushinsei) et expliqua l' « Essence du  Sacrement propice du Vajra de Grande-Extase »: « Hûm ».
-CHAPITRE 3
+##CHAPITRE 3##
 
 Alors l'Ainsi-allé, pris le relais de Kongô Shu Bosatsu et continua l'explication du principe directeur sapiential qui guide vers l'obtention de l’  « Éveil parfait et sans supérieur à la nature du Dharma de la calme tranquillité de tous les Ainsi-allés » avec ces mots:
 
-« Il y' a l’Éveil parfait à l'identité du Vajra parce que le Grand Éveil est solide comme le diamant.
+>« Il y' a l’Éveil parfait à l'identité du Vajra parce que le Grand Éveil est solide comme le diamant.
+>Il y' a l’Éveil parfait à l'identité des Fins parce que l’Éveil coincide avec l’accomplissement de la Fin ultime.
+>Il y' a l’Éveil parfait à l'identité des dharma parce que le Grand Éveil est la pureté de la nature en soi.
+>Il y' a l’Éveil parfait à l'identité de toutes les actions parce que le Grand Éveil est la nature sans distinctions de toutes >les distinctions.
 
-Il y' a l’Éveil parfait à l'identité des Fins parce que l’Éveil coincide avec l’accomplissement de la Fin ultime.
+>Kongô Shu, si quiconque entend cet Enseignement sur les quatre manifestations, le récite, le reçoit, l'applique, dût-il >commettre des péchés innombrables, il ira sans coup férir au delà des destinées malheureuses et prendra sa place dans le Dôjo. >Il sera à même d'obtenir une victoire rapide et et atteindra l’Éveil sans supérieur. »
 
-Il y' a l’Éveil parfait à l'identité des dharma parce que le Grand Éveil est la pureté de la nature en soi.
+Sur ce, ayant donné son explication, le Seigneur, sur le point d'aller plus avant dans son Enseignement, se détendit et esquissât un sourire. Joignant ses mains dans la forme du Sceau de Sapience, il exposa l'Essence de l'identité de la nature propre de tous les dharma: 
+>« Âh ».
 
-Il y' a l’Éveil parfait à l'identité de toutes les actions parce que le Grand Éveil est la nature sans distinctions de toutes les distinctions.
-
-Kongô Shu, si quiconque entend cet Enseignement sur les quatre manifestations, le récite, le reçoit, l'applique, dût-il commettre des péchés innombrables, il ira sans coup férir au delà des destinées malheureuses et prendra sa place dans le Dôjo. Il sera à même d'obtenir une victoire rapide et et atteindra l’Éveil sans supérieur. »
-
-Sur ce, ayant donné son explication, le Seigneur, sur le point d'aller plus avant dans son Enseignement, se détendit et esquissât un sourire. Joignant ses mains dans la forme du Sceau de Sapience, il exposa l'Essence de l'identité de la nature propre de tous les dharma: « Âh ».
-CHAPITRE 4
+##CHAPITRE 4##
 
 Alors, le Seigneur Issai Aku Saishô Shaka Nyôrai continua par l'explication du principe directeur sapiential qui manifeste la conquête suprême par l'identité de tous les dharma avec ces mots:
 
-« A cause de l'absence de vaines imaginations au sujet de l'Avidité, il n'y a pas de vaines imaginations au sujet de la Haine.
+>« A cause de l'absence de vaines imaginations au sujet de l'Avidité, il n'y a pas de vaines imaginations au sujet de la Haine.
+>A cause de l'absence de vaines imaginations au sujet de la Haine, il n'y a pas de vaines imaginations au sujet de l'illusion.
+>A cause de l'absence de vaines imaginations au sujet de l'Illusion, il n'y a pas de de vaines imagination au sujet de tous les >dharmas.
+>A cause de l'absence de vaines imaginations au sujet de tous les dharmas on s'abstient de spéculations au sujet de la Prajna-paramita.
 
-A cause de l'absence de vaines imaginations au sujet de la Haine, il n'y a pas de vaines imaginations au sujet de l'illusion.
+>Kongô Shu, si quiconque entend ce principe, le reçoit, le met en pratique et le récite, quand bien même il détruirait la >totalité des êtres, il ne tombera pas dans les destinées tragiques. Pratiquant coûte que coûte la discipline, il atteindra >rapidement l’Éveil suprême. »
 
-A cause de l'absence de vaines imaginations au sujet de l'Illusion, il n'y a pas de de vaines imagination au sujet de tous les dharmas.
+Alors Kongô Shu Dai Bosatsu, réalisant intérieurement ce qui venait d'être exposé forma le mudra de la "Conquête des trois Mondes" et comme un bouton de lotus, son visage s'ouvrit d'un sourire. Alors, nouant ses sourcils et dardant son regard avec férocité, il découvrit ses crocs pareils à des épées. Adoptant la posture de la conquête il expliqua la syllabe adamantine "HUM": 
+>"HÛM".
 
-A cause de l'absence de vaines imaginations au sujet de tous les dharmas on s'abstient de spéculations au sujet de la Prajna-paramita.
-
-Kongô Shu, si quiconque entend ce principe, le reçoit, le met en pratique et le récite, quand bien même il détruirait la totalité des êtres, il ne tombera pas dans les destinées tragiques. Pratiquant coûte que coûte la discipline, il atteindra rapidement l’Éveil suprême. »
-
-Alors Kongô Shu Dai Bosatsu, réalisant intérieurement ce qui venait d'être exposé forma le mudra de la "Conquête des trois Mondes" et comme un bouton de lotus, son visage s'ouvrit d'un sourire. Alors, nouant ses sourcils et dardant son regard avec férocité, il découvrit ses crocs pareils à des épées. Adoptant la posture de la conquête il expliqua la syllabe adamantine "HUM": "HÛM".
-CHAPITRE 5
+##CHAPITRE 5##
 
 Alors le Seigneur Toku Jisha Shôjôhosshô Nyôrai,continua par l'explication du principe sapiential du « Sceau de Sagesse » qui permet, grâce à l'existence naturelle, de comprendre l'égalité de tous les dharma:
 
-« C'est Précisément parce que les attachements mondains sont purs que la haine est pure.
+>« C'est Précisément parce que les attachements mondains sont purs que la haine est pure.
+>C'est précisément parce que les souillures mondaines sont pures que tous les actes mauvais sont purs.
+>C'est précisément parce que les dharma mondains sont purs que tous les Êtres sont purs.
+>C'est précisément parce que les connaissances mondaines sont pures que la Prajna-paramaita est pure.
 
-C'est précisément parce que les souillures mondaines sont pures que tous les actes mauvais sont purs.
-
-C'est précisément parce que les dharma mondains sont purs que tous les Êtres sont purs.
-
-C'est précisément parce que les connaissances mondaines sont pures que la Prajna-paramaita est pure.
-
-Kongô Shu, si quiconque entends ce principe, le reçoit et le pratique, le récite et concentre son esprit dessus, même s'il demeure dans le désir, comme la fleur du lotus, il ne sera mû par les souillures externes ou les obstacles, pas plus qu'il ne sera pollué. Il atteindra rapidement le véritable l'Éveil suprême. »
+>Kongô Shu, si quiconque entends ce principe, le reçoit et le pratique, le récite et concentre son esprit dessus, même s'il >demeure dans le désir, comme la fleur du lotus, il ne sera mû par les souillures externes ou les obstacles, pas plus qu'il ne >sera pollué. Il atteindra rapidement le véritable l'Éveil suprême. »
 
 Alors, Kanjizai Dai Bosatsu réalisant intérieurement ce qui venait d'être exposé se relaxa et esquissa un sourire. Créant l'énergie qui ouvre le bouton de lotus il méditait sur la pureté du Désir et exprima l' « Essence de la multitude des désirs de la masse des Êtres »: "Hrih".
-CHAPITRE 6
+
+##CHAPITRE 6##
 
 Alors le Seigneur Issai Sangai Shu Nyôrai continua par l'explication du principe directeur sapiential qui est le réceptacle de la « Grâce sacramentelle de tous les Bouddhas » en ces mots:
 
-« Par l’administration du Kanjô il possible d'atteindre l'état de Sangai hô ô;
+>«Par l’administration du Kanjô il possible d'atteindre l'état de Sangai hô ô;
+>Par l’administration des bénéfices de la Fin on peut atteindre à la satisfaction de tous les souhaits;
+>Par l’administration du Dharma on atteint à tous les dharmas parfaits et satisfaisants;
+>Par l’administration des nécessités pratiques on atteint à tous les plaisirs du corps, de la parole et de l'esprit. »
 
-Par l’administration des bénéfices de la Fin on peut atteindre à la satisfaction de tous les souhaits;
+Alors Kokûzô Dai Bosatsu réalisant intérieurement ce qui venait d'être exposé se relaxa et esquissa un sourire. Il saisit la perruque adamantine et spontanément l'attacha sur sa tête. Il exprima l' « Essence de la gemme sacramentelle de toutes les consécrations »: 
+>"Trâm".
 
-Par l’administration du Dharma on atteint à tous les dharmas parfaits et satisfaisants;
-
-Par l’administration des nécessités pratiques on atteint à tous les plaisirs du corps, de la parole et de l'esprit. »
-
-Alors Kokûzô Dai Bosatsu réalisant intérieurement ce qui venait d'être exposé se relaxa et esquissa un sourire. Il saisit la perruque adamantine et spontanément l'attacha sur sa tête. Il exprima l' « Essence de la gemme sacramentelle de toutes les consécrations »: "Trâm".
-CHAPITRE 7
-
+##CHAPITRE 7##
 Alors le Seigneur Issai Nyorai Chi In Nyorai continua par l'explication du principe directeur sapiential qui est l'onction des sceau de tous les Bouddha en ces termes:
 
-« Former le sceau de tous les Bouddhas, c'est pratiquer le corps de tous les Bouddhas;
+>«Former le sceau de tous les Bouddhas, c'est pratiquer le corps de tous les Bouddhas;
+>Former le sceau de la parole de tous les Bouddhas, c'est pratiquer la parole de tous les Bouddhas;
+>Former le Sceau de l'Esprit de tous les Bouddhas, c'est pratiquer l'Esprit de tous les Bouddhas;
+>Former le Sceau adamantin de tous les Bouddhas, c'est accomplir la plus excellente Siddhi du corps, de la parole et de l'Esprit >de tous les Bouddhas.
 
-Former le sceau de la parole de tous les Bouddhas, c'est pratiquer la parole de tous les Bouddhas;
+>Kongô Shu, si quiconque entend ce principe, le reçoit, le pratique, le récite et le médite, il atteindra la souveraineté sur la >Totalité, la Sapience de l'omniscience, toutes les activités, tous les accomplissements. Il atteindra la nature adamantine de >toutes les fonctions du corps, de la parole et de l'esprit et toutes les siddhi. Il atteindra rapidement le véritable Éveil >suprême. »
 
-Former le Sceau de l'Esprit de tous les Bouddhas, c'est pratiquer l'Esprit de tous les Bouddhas;
+Alors le Seigneur, sur le point d'expliquer un peu plus cet Enseignement se relaxa et esquissa un sourire. Il forma le Sceau du « Grand Sacrement du poing de Foudre » et exprima la « Quintessence naturelle qui est le sacrement de l'accomplissement de tous ces sceaux adamantins »: 
+>« Ah ».
 
-Former le Sceau adamantin de tous les Bouddhas, c'est accomplir la plus excellente Siddhi du corps, de la parole et de l'Esprit de tous les Bouddhas.
-
-Kongô Shu, si quiconque entend ce principe, le reçoit, le pratique, le récite et le médite, il atteindra la souveraineté sur la Totalité, la Sapience de l'omniscience, toutes les activités, tous les accomplissements. Il atteindra la nature adamantine de toutes les fonctions du corps, de la parole et de l'esprit et toutes les siddhi. Il atteindra rapidement le véritable Éveil suprême. »
-
-Alors le Seigneur, sur le point d'expliquer un peu plus cet Enseignement se relaxa et esquissa un sourire. Il forma le Sceau du « Grand Sacrement du poing de Foudre » et exprima la « Quintessence naturelle qui est le sacrement de l'accomplissement de tous ces sceaux adamantins »: « Ah ».
-CHAPITRE 8
-
+##CHAPITRE 8##
 Alors le Seigneur Issai Mugeron Nyorai continua par l'explication du principe directeur sapiential de la roue des lettres en ces mots:
 
-« Les dharma sont vides parce que sans nature propre;
+>« Les dharma sont vides parce que sans nature propre;
+>Les dharmas sont sans signe parce que sans nature de signe;
+>Les dharmas sont sans vœux parce que sans nature;
+>Les dharmas sont pure lumière parce que la Prajna Paramita est pure. »
 
-Les dharmas sont sans signe parce que sans nature de signe;
-
-Les dharmas sont sans vœux parce que sans nature;
-
-Les dharmas sont pure lumière parce que la Prajna Paramita est pure. »
-
-Alors le seigneur Monjushiri sur le point d'expliquer un peu plus cet Enseignement se relaxa et esquissa un sourire. Il prit son épée, la brandissant il fendit tous les Ainsi-allés et expliqua la plus excellente « Essence de la perfection de sagesse »: « Om ».
+Alors le seigneur Monjushiri sur le point d'expliquer un peu plus cet Enseignement se relaxa et esquissa un sourire. Il prit son épée, la brandissant il fendit tous les Ainsi-allés et expliqua la plus excellente « Essence de la perfection de sagesse »: 
+>« Om ».
 
 
 
