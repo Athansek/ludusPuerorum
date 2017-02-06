@@ -1,4 +1,4 @@
-#Rishu Kyô#
+#Sutra sur l'essentiel du Principe de l'intellection sapientielle#
 ##Chapitre 1##
 Ainsi ai-je entendu : l' Ainsi-allé avait obtenu la plus excellente(shushô) « Sapience Sacramentelle de la Grâce adamantine de Tous-les-Bouddhas ». Ayant déjà obtenu la « Couronne consécratoire orné-de gemmes de Tous-les-Bouddhas »(Issai Nyôrai Hôkan) il était le souverain des trois mondes(sangaishu). Il avait réalisé la « Souveraineté de l'union avec la sapience-omnisciente-de-Tous-les-Bouddhas »(issainyôrai issaichichi yuga jizai). Il était capable d'accomplir les actions de l'  « Egalité de tous les  sceaux de Tous-les-Bouddhas »(issai nyôrai issai in byô) et avait ainsi porté à fruition sans reste toutes les fonctions du Désir dans toutes les sphères des Êtres: dans les trois temps et les trois cosmes il était adamantin dans les trois fonction karmiques 1(shingoi gō).
 
