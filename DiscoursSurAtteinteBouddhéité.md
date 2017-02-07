@@ -1,13 +1,14 @@
 #sur Le sens d'être Bouddha dans l'instant#
+*écrit par Henjo Kongô*
 
 ##Preuves scripturaires##
-Question: Divers sutras et traités insistent sur fait qu'il faut trois grands éons pour devenir un Bouddha. Quelles sont les preuves qui permettent de postuler le principe de l'atteinte de la bouddhéité dés ce corps?  
-Réponse: L'Ansi-venu l'a expliqué dans la Chambre aux trésors secrête.  
+*Question*: Divers sutras et traités insistent sur fait qu'il faut trois grands éons pour devenir un Bouddha. Quelles sont les preuves qui permettent de postuler le principe de l'atteinte de la bouddhéité dés ce corps?  
+*Réponse*: L'Ansi-venu l'a expliqué dans la Chambre aux trésors secrête.  
 
-Question: Comment est-ce expliqué dans ces sutra?  
-Réponse: Dans le Kongôchô Kyô(T. 19:320c) il est expliqué:  
+*Question*: Comment est-ce expliqué dans ces sutra?  
+*Réponse*: Dans le Kongôchô Kyô(T. 19:320c) il est expliqué:  
 >"Celui qui pratique ce samadhi réalisera l'Eveil du Bouddha.
->Ce samadhi est celui de l'Honoré Ichiji Kinrin Ô."
+>Ce samadhi est celui de l'Honoré Ichiji Chôrin Ô."
 
 Il dit aussi(T. 18: 331b):
 >"Si un Être rencontre cet Enseignement et le pratique  
@@ -15,8 +16,7 @@ Il dit aussi(T. 18: 331b):
 >le "stage de la Joie" dans cette vie et accomplira l'  
 >Eveil sans supérieur dans ses prochaines 16 vies."  
 
-Remarque au sujet de cette citation:  
-"Cet Enseignement" est une référence au Roi des Enseignements sur le samadhi réalisé par le Hôbutsu lui-même.  
+*Remarque au sujet de cette citation*:"Cet Enseignement" est une référence au Roi des Enseignements sur le samadhi réalisé par le Hôbutsu lui-même.  
 Le "stage de la Joie" n'est pas la première Terre de l'exotérisme, mais le premier stage de notre Véhicule Bouddhique comme expliqué dans notre châpitre sur les stages.  
 "Seize vie" est une référence à la génération des seize Grands Bodhisattva comme expliqué dans notre châpitre sur les stages. 
 
@@ -45,8 +45,9 @@ Il est aussi dit(T. 18: 45c):
 >Pratiquez le et fusionnez avec la Divinité, vous  
 >réussirez."    
 
-Remarque au sujet de cette citation: Dans ce passage il fait référence aux Siddhi mondaines et supramondaines du Hôbutsu que l'on obtient en récitant des mantras.    
-La "station de l'Espace" veut dire que Hôshin est comme l'élément Espace, inobstrusif, contient tous les phénomènes et éternel. Comme toute chose en est dépendante on parle de station.
+*Remarque au sujet de cette citation*: Dans ce passage il fait référence aux Siddhi mondaines et supramondaines du Hôbutsu que l'on obtient en récitant des mantras.    
+La "station de l'Espace" veut dire que Hôshin est comme l'élément Espace, inobstrusif, contient tous les phénomènes et éternel. Comme toute chose en est dépendante on parle de station.  
+"Mystère du corps": le Triple Mystère du
 
 
 “Mystery of the body”: the three mysteries of the Dharma-Buddha
@@ -615,3 +616,286 @@ everything without distortion and without error. What
 Buddha does not possess such a perfect mirror? Therefore it says,
 “And because of the power [to function] as a perfect mirror there
 is the real wisdom of enlightenment.”
+
+#Vocabulaire du Sokushin Jôbutsu Gi#
+不書是説三摩地法者法身自證三摩地。
+諸教者他受用身所説諸顯教也又云。若
+ 人求佛慧。通達菩提心。父母所生身。速證
+ 大覺位。依如是等教理證文成立此義。如
+ 是經論字義差別云何。頌曰
+ 六大無礙常瑜伽體　四種曼荼各不離相　
+ 三密加持速疾顯用　重重帝網名即身無礙
+諸佛　
+ 法然具足薩般若法佛
+成佛　心數心王過刹塵
+ 無數　各具五智無際智輪圓　圓鏡力故 画像
+ 實覺智所申此四句
+明成佛一字
+ 釋曰。此二頌八句以歎卽身成佛四字。卽
+ 是四字含無邊義。一切佛法不出此一句。
+ 故略樹兩頌顯無邊徳。頌文分二。初一頌
+ 歎卽身二字。次一頌歎成佛兩字。初中
+ 又四。初一句體二相三用四無礙。後頌中有
+ 四。初擧法佛成佛。次表無數。三顯輪圓。
+ 後出所由。謂六大者五大及識。大日經所
+ 謂。我覺本不生。出過語言道。諸過得解脱。
+ 遠離於因縁。知空等虚空。是其義也。彼種 画像
+ 子眞言曰uddh@odhivirh@u@mkh@mh@u@m。爲
+ 阿字諸法本不生義者卽是地大。縛字離言
+ 説謂之水大。清淨無垢塵者是則囉字火大
+ 也。因業不可得者訶字門風大也。等虚空者
+ 欠字字相即空大也。我覺者識大。因位名識
+ 果位謂智。智即覺故。梵音沒馱冒地uddh@
+ odhi一字之轉沒馱名覺冒地曰智。故
+ 諸經中所謂三藐三冒地者。古翻云遍知
+ 新譯等覺。覺知義相渉故。此經號識爲覺 画像
+ 者從强得名。因果之別本末異而已。經偈
+ 約五佛三摩地作如是説
+ 又金剛頂經云。諸法本不生。自性離言説。清
+ 淨無垢染。因業等虚空。此亦同大日經。諸
+ 法者謂諸心法。心王心數其數無量。故曰諸
+ 心識名異義通。故天親等以三界唯心成立
+ 唯識義。自餘同上説。又大日經云。我卽同
+ 心位。一切處自在。普遍於種種。有情及非
+ 情阿字第一命。嚩字名爲水。囉字名爲
+ 火。𤙖字名爲風。佉字同虚空。此經文初 画像
+ 句我卽同心位者。所謂心則識智也。後五
+ 句卽是五大。中三句者表六大自在用無礙
+ 徳。般若經及瓔珞經等亦説六大義。如是六
+ 大能造一切佛及一切衆生器界等四種法
+ 身三種世間。故大日尊説如來發生偈云
+ 　　　　能生隨類形　諸法與法相　　　　
+ 　　　　諸佛與聲聞　救世因縁覺　　　　
+ 　　　　勤勇菩薩衆　及仁尊亦然　　　　
+ 　　　　衆生器世界　次第而成立　　　　
+ 　　　　生住等諸法　常恒如是生 画像
+ 此偈顯現何義。謂表六大能生四種法身曼
+ 荼羅及三種世間。謂諸法者心法。法相者色
+ 法。復次諸法擧通名。法相者顯差別。故下
+ 句云諸佛聲聞縁覺菩薩衆生器世間次第
+ 而成立。復次諸法者法曼荼羅。法相者三昧
+ 耶身。諸佛乃至衆生者大曼荼羅身。器世界
+ 者表所依土。此器界者三昧耶曼荼羅之總
+ 名也。復次佛菩薩二乘者表智正覺世間。衆
+ 生者衆生世間。器世界者卽是器世間也。復 画像
+ 次能生者六大也。隨類形者所生法也。即四
+ 種法身三種世間是也。故次又言。祕密主有
+ 造曼荼羅聖尊分位種子標幟。汝當諦聽
+ 吾今演説。卽説偈曰
+ 　　　　眞言者圓壇　先置於自體　　　　
+ 　　　　自足而至臍　成大金剛輪　　　　
+ 　　　　從此而至心　當思惟水輪　　　　
+ 　　　　水輪上火輪　火輪上風輪
+ 謂金剛輪者阿字。阿字卽地。水火風如文
+ 而可知。圓壇者空。眞言者者心大也。長行 画像
+ 中所謂聖尊者大身。種子者法身。幖幟者三
+ 昧耶身。羯磨身者三身各各具之。具説者
+ 經文廣説之臨文可知。又曰。大日尊言。
+ 金剛手有諸如來意生作業喜戲行舞廣
+ 演品類。攝持四界安住心王等同虚空。
+ 成就廣大見非見果。出生一切聲聞辟支佛
+ 諸菩薩位。此文顯現何義。謂表六大能生
+ 一切。何以得知。謂心王者識大。攝持四界
+ 者四大。等虚空者空大。此六大能生。見非見
+ 者欲色界無色界。下如文。卽是所生法。如 画像
+ 此經文皆以六大爲能生。以四法身三世
+ 間爲所生。此所生法上達法身下及六
+ 道。雖麁細有隔大小有差。然猶不出六大。
+ 故佛説六大爲法界體性。諸顯教中以四
+ 大等爲非情。密教則説此爲如來三摩耶
+ 身。四大等不離心大。心色雖異其性卽同。
+ 色卽心心卽色無障無礙。智卽境境卽智。智
+ 卽理理卽智無礙自在。雖有能所二生都
+ 絶能所。法爾道理有何造作。能所等名皆 画像
+ 是密號。執常途淺略義不可作種種戲
+ 論。如是六大法界體性所成之身。無障無
+ 礙互相渉入相應。常住不變同住實際。故頌
+ 曰六大無礙常瑜伽。解曰。無礙者渉入自
+ 在義。常者不動不壞等義。瑜伽者翻云相應。
+ 相應渉入卽是卽身成佛義
+ 四種曼荼各不離者。大日經説。一切如來有
+ 三種祕密身。謂字印形像。字者法曼荼羅。
+ 印謂種種幖幟卽三昧耶曼荼羅。形者相好
+ 具足身卽大曼荼羅。此三種身各具威儀事 画像
+ 業。是名羯磨曼荼羅。是名四種曼荼羅。
+ 若依金剛頂經説。四種曼荼羅者。一大曼
+ 荼羅。謂一一佛菩薩相好身。又綵畫其形像
+ 名大曼荼羅。又以五相成本尊瑜伽。又名
+ 大智印。二三昧耶曼荼羅。卽所持幖幟刀劍
+ 輪寶金剛蓮等類是也。若畫其像亦是也。
+ 又以二手和合金剛縛發生成印是。亦名
+ 三昧耶智印。三法曼荼羅。本尊種子眞言。
+ 若其種子字各書本位是。又法身三摩地
+ 及一切契經文義等皆是。亦名法智印。四 画像
+ 羯磨曼荼羅卽諸佛菩薩等種種威儀事業
+ 等。若鑄若㘿等亦是。亦名羯＊磨智印。如
+ 是四種曼荼羅四種智印其數無量。一一量
+ 同虚空。彼不離此此不離彼。猶如空光
+ 無礙不逆。故云四種曼荼＊羅各不離。不離
+ 卽是卽義
+ 三密加持速疾顯者。謂三密者一身密二語
+ 密三心密。法佛三密甚深微細等覺十地不
+ 能見聞故曰密。一一尊等具刹塵三密。互 画像
+ 相加入彼此攝持。衆生三密亦復如是。故名
+ 三密加持。若有眞言行人觀察此義。手作
+ 印契口誦眞言心住三摩地。三密相應加
+ 持故早得大悉地。故經云。此毘盧遮那三
+ 字密言共一字無量。適以印密言印心成
+ 鏡智速獲菩提心金剛堅固體。印額應當
+ 知成平等性智速獲灌頂地福聚荘嚴身。
+ 以密語印喉時成妙觀察智即能轉法
+ 輪得佛智慧身。誦密言印頂成成所作智
+ 證佛變化身能伏難調者。由此印密言加 画像
+ 持自身成法界體性智毘盧遮那佛虚空法
+ 界身。又云。入法身眞如觀一縁一相平等
+ 猶如虚空。若能專注無間修習。則入初地
+ 頓集一大阿僧祇劫福智資糧。由衆多如來
+ 所加持故。乃至十地等覺妙覺具薩般若。
+ 自他平等與一切如來法身共同。常以無縁
+ 大悲利樂無邊有情作大佛事自此下
+儀軌之
+ 又云。若依毘盧遮那佛自受用身所説内證
+ 自覺聖智法。及大普賢金剛薩埵他受用身
+ 智。則於現生遇逢曼荼羅阿闍梨得入曼 画像
+ 荼羅。爲具足羯磨以普賢三摩地引入金
+ 剛薩埵入其身中猶加持威徳力故。於
+ 須臾頃當證無量三昧耶無量陀羅尼門。
+ 以不思議法能變易弟子倶生我執種子。應
+ 時集得身中一大阿僧祇劫所集福徳智慧。
+ 則爲生在佛家。其人從一切如來心生。從
+ 佛口生從佛法生從法化生得佛法財。法
+ 財者謂三密菩提心教法此明初授菩提心戒
+時阿闍梨加持方便所
+ 得之
+益纔見曼荼羅能須臾頃淨信。以歡喜心 画像
+ 瞻覩故。則於阿頼耶識中種金剛界種子
+ 此文明初見曼荼羅
+海會諸尊所得益具受灌頂受職金剛名號。
+ 從此已後受得廣大甚深不思議法超越二
+ 乘十地。此大金剛薩埵五密瑜伽法門。於四
+ 時行住坐臥四威儀之中無間作意修習。於
+ 見聞覺知境界人法二空執悉皆平等。現生
+ 證得初地漸次昇進。由修五密於涅槃生
+ 死不染不著。於無邊五趣生死廣作利樂。
+ 分身百億遊諸趣中。成就有情令證金
+ 剛薩埵位此明依儀軌法則修
+行之時不思議法益又云。三密金 画像
+ 剛以爲増上縁能證毘盧遮那三身果位。如
+ 是經等皆説此速疾力不思議神通三摩地
+ 法。若有人不闕法則晝夜精進。現身獲得
+ 五神通。漸次修練不捨此身進入佛位。具
+ 如經説。依此義故曰三密加持速疾顯。加
+ 持者表如來大悲與衆生信心。佛日之影現
+ 衆生心水曰加。行者心水能感佛日名持。
+ 行者若能觀念此理趣。三密相應故現身
+ 速疾顯現證得本有三身。故名速疾顯。如
+ 常卽時卽日卽身義亦如是 画像
+ 重重帝網名卽身者。是則擧譬喩以明諸尊
+ 刹塵三密圓融無礙。帝網者因陀羅珠網也。
+ 謂身者我身佛身衆生身是名身。又有四
+ 種身。言自性受用變化等流是名曰身。又有
+ 三種字印形是也。如是等身縱横重重。如
+ 鏡中影像燈光渉入。彼身卽是此身。此身卽
+ 是彼身。佛身卽是衆生身。衆生身卽是佛身。
+ 不同而同不異而異。故三等無礙眞言曰歸
+ 命句如常 画像
+ smerismesmyesv@h@
+ 阿三迷底哩三迷三昧曳莎呵
+ 初句義云無等。次云三等。後句云三平等。
+ 佛法僧是三。身語意亦三。心佛及衆生三
+ 也。如是三法平等平等一也。一而無量無量
+ 而一。終不雜亂。故曰重重帝網名卽身
+ 法然具足薩般若者。大日經云。我一切本初。
+ 號名世所依。説法無等比。本寂無有上。謂
+ 我者大日尊自稱。一切者擧無數。本初者本
+ 來法然證得如是大自在一切法之本祖。如 画像
+ 來法身衆生本性。同得此本來寂靜之理。然
+ 衆生不覺不知。故佛説此理趣覺悟衆生。
+ 又云。諸樂欲因果者。非彼愚夫能知眞言
+ 之相何以故。説因非作者。彼果則不生。
+ 此因尙空云何而有果。當知眞言果。悉離
+ 於因果。上文所引我覺本不生乃至遠離於
+ 因縁偈。及諸法本不生乃至因業等虚空。如
+ 是等偈皆明法然具足之義。又金剛頂云。自
+ 性所成眷屬金剛手等十六大菩薩。乃至各
+ 各流出五億倶胝微細法身金剛如是等文 画像
+ 亦是此義也。言法然者顯諸法自然如是。
+ 具足者成就義無闕少義。薩般若者梵語也。
+ 古云薩云者訛略。具云薩羅婆枳孃曩。
+ 翻云一切智智。一切智智者。智者決斷簡
+ 擇義。一切佛各具五智三十七智乃至刹塵
+ 智。次兩句卽表此義。若明決斷徳則以智
+ 得名。顯集起則以心得稱。顯軌持則
+ 法門得稱。一一名號皆不離人。如此人
+ 數過刹塵。故名一切智智。不同顯家一智 画像
+ 以對一切得此號。心王者法界體性智等。
+ 心數者多一識。各具五智明一一心王心數
+ 各各有之。無際＊智高廣無數之義。圓鏡力
+ 故實覺智者。此卽出所由。一切諸佛因何
+ 得覺智名。謂如一切色像悉現高臺明鏡之
+ 中。如來心鏡亦復如是。圓明心鏡高懸法
+ 界頂。寂照一切不倒不謬。如是圓鏡何佛
+不有。故曰圓鏡力故實覺智
+卽身成佛義
+画像
+眞言宗卽身成佛義問答一卷
+問。諸經論中皆説超三大劫成佛。今眞言
+宗立卽身成佛之義有明證文耶答。眞
+言經論中多有證文問。其經論者何等耶
+答。金剛頂等經及菩提心論也問。其經
+論文何耶答。經云。修此三昧者現證佛
+菩提。菩提心論云。若人求佛惠。通達菩提
+心。父母所生身。速證大覺位問。此卽身
+成佛之教爲大小之機共被耶。爲當有簡別 画像
+耶答。此有傍正二意問。其二意如何
+答。正爲大機傍被小機問。何以得知正
+爲大機傍被小機耶答。大日經云。佛
+子此大乘。眞言行道法。我今正開演。爲被
+大乘器。又云。復次祕密主於當來世時。劣
+惠諸衆生以癡愛自蔽。盲冥樂求果不知
+解此道。爲度彼等故隨順説是法。故知正
+爲大機傍被小機也問。於佛有能生之
+物耶答。有之問。何者此能生耶答。 画像
+今意以六大爲能生之物問。其六大者
+何答。一地大二水大三火大四風大五空
+大六識大也問。何故此六種當謂大耶
+答。其體性無有邊際常住不變故名爲大
+問。以此六大爲能生若有證文答。大
+日經云。眞言者圓壇。先置於自體自足而
+至臍。成大金剛輪。從此而至心。當思惟
+水輪。水輪上火輪。火輪上風輪問。水火
+風三大有證文。今地空識三大未顯。意何
+答。金剛輪卽地大。圓壇卽空大。眞言者卽 画像
+識大也問。此是六大之證文也。能生之證
+文何答。經云。能生隨類形。諸法與法相。
+諸佛與聲聞救世因縁覺。勤勇菩薩衆。及仁
+尊亦然。衆生器世界。次第而成立云云此六
+大能生諸法及三種世間。是證文也問。大
+機小機共修此教者一共卽身成佛耶答。
+此不可爾問。其意何答。今意可云大
+機卽身成佛小機者後十六生成佛問。何
+以得知大機卽身成佛小機經十六生成
+佛答。經云。修此三昧者現證佛菩提。此 画像
+卽大機卽身成佛之證文。若有衆生遇此
+教晝夜四時精進修。現世證得歡喜地。後十
+六生成正覺。此卽小機成佛之證文也問。
+不簡大小機令卽身成佛者勝可見。旣有
+速遲何殊餘宗耶答。法相等宗經三大
+劫都無成佛之理。今此宗意者小機只經十
+六生成佛。尙勝餘宗問。何故不云十
+八生十七生。定云經十六生耶答。經十
+六大菩薩生故云爾問。六大生佛之時自 画像
+然而生耶。爲當有生方耶答。可云有生
+方問。其生方何答。觀五大種子安立
+自體上。結契印誦眞言時。不思議加持起
+而生佛問。其不思議加持者誰加持耶
+答。此法佛加持也問。若爾行者之觀念修
+行力故。感諸佛加持而成佛。何今云六大
+生佛耶答。六大卽諸佛故六大爲體性所
+依而觀念修行時。不思議加持發而生佛。所
+以無咎問其加持者意何答。佛日大悲
+之影現行者信心之水曰加。行者信心水 画像
+能感佛日名持問。小機經十六生。大機
+者不經耶答。可云大機亦經十六生也
+問。若爾何云卽身成佛耶答。大小機
+ 雖云經十六生。横竪義故速遲各殊
