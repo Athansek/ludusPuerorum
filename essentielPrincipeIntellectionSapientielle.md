@@ -1,5 +1,5 @@
-#Sutra sur l'essentiel du Principe de l'intellection sapientielle#
-##Chapitre 1##
+# Sutra sur l'essentiel du Principe de l'intellection sapientielle
+## Chapitre 1
 Ainsi ai-je entendu : l' Ainsi-allé avait obtenu la plus excellente(shushô) « Sapience Sacramentelle de la Grâce adamantine de Tous-les-Bouddhas ». Ayant déjà obtenu la « Couronne consécratoire orné-de gemmes de Tous-les-Bouddhas »(Issai Nyôrai Hôkan) il était le souverain des trois mondes(sangaishu). Il avait réalisé la « Souveraineté de l'union avec la sapience-omnisciente-de-Tous-les-Bouddhas »(issainyôrai issaichichi yuga jizai). Il était capable d'accomplir les actions de l'  « Egalité de tous les  sceaux de Tous-les-Bouddhas »(issai nyôrai issai in byô) et avait ainsi porté à fruition sans reste toutes les fonctions du Désir dans toutes les sphères des Êtres: dans les trois temps et les trois cosmes il était adamantin dans les trois fonction karmiques 1(shingoi gō).
 
 Dai Biroshana résidait alors dans le palais du Yokukai Takejizai Tennô dans le cosme du Désir. Les Bouddhas qui s'y ebattent le qualifient de « Grand palais Gemme-qui-exauce-tous-les-voeux »(dai mani ten) . Il était orné de bien des manières: par des profusions de clochettes(rin), de cloches(taku), de bannières de soie(jôban) qui ondulent dans une douce brise(mifu). Il y' avait aussi quantité de perles(shu), de guirlandes(man), de colliers de pierres précieuses(yôraku), des lunes pleines et en quartier2
@@ -8,7 +8,7 @@ Il était accompagné par une foule de 80 myriades de bodhisattva dont le Grand 
 
 En compagnie de cette foule de grand Bodhisattvas, circumambulé et révéré par eux il exposa l'Enseignement bon en son début, bon en son milieu et en sa fin(shochûgo), exquis dans ses mots et leur portée, d'une pure unité, parfaitement satisfaisant, immaculé et intégral.
 
-##CHAPITRE 2##(243-784B02)
+## CHAPITRE 2(243-784B02)
 Il expliqua alors la doctrine des « Expressions de la pureté des tous les dharmas" »en ces mots:
 
 >« L'expression « pureté de l'extase exquise »(myoteki shôjô) est l'étape de la certitude pour le Bodhisattva(bosatsu i).
@@ -36,7 +36,7 @@ Il expliqua alors la doctrine des « Expressions de la pureté des tous les dhar
 Alors, le Seigneur Kongô Shu Bosatsu, le Grand-être, l'excellent « Être tenant le vajra de tous les mandalas de tous les pactes des Ainsi-allés »(issai mandara jikongô shôsatsu) qui subjugue sans répit dans les trois cosmes et accomplis toutes les intentions, était sur le point d'éclaircir un peu plus le sens de cet Enseignement. Il se détendit et esquissa un sourire. De senestre il fit le mudra de la »Fierté adamantine »(kongôman), de sa dextre il saisit le « Grand Vajra originel »(honshô daikongo). Alors il suscita la « Vigueur de la progression courageuse »(yushinsei) et expliqua l' « Essence du  Sacrement propice du Vajra de Grande-Extase »: 
 >« Hûm ».
 
-##CHAPITRE 3##
+## CHAPITRE 3
 Alors l'Ainsi-allé, pris le relais de Kongô Shu Bosatsu et continua l'explication du principe directeur sapiential qui guide vers l'obtention de l’  « Éveil parfait et sans supérieur à la nature du Dharma de la calme tranquillité de tous les Ainsi-allés » avec ces mots:
 
 >« Il y' a l’Éveil parfait à l'identité du Vajra parce que le Grand Éveil est solide comme le diamant.
@@ -49,7 +49,7 @@ Alors l'Ainsi-allé, pris le relais de Kongô Shu Bosatsu et continua l'explicat
 Sur ce, ayant donné son explication, le Seigneur, sur le point d'aller plus avant dans son Enseignement, se détendit et esquissât un sourire. Joignant ses mains dans la forme du Sceau de Sapience, il exposa l'Essence de l'identité de la nature propre de tous les dharma: 
 >« Âh ».
 
-##CHAPITRE 4##
+## CHAPITRE 4
 Alors, le Seigneur Issai Aku Saishô Shaka Nyôrai continua par l'explication du principe directeur sapiential qui manifeste la conquête suprême par l'identité de tous les dharma avec ces mots:
 
 >« A cause de l'absence de vaines imaginations au sujet de l'Avidité, il n'y a pas de vaines imaginations au sujet de la Haine.
@@ -62,7 +62,7 @@ Alors, le Seigneur Issai Aku Saishô Shaka Nyôrai continua par l'explication du
 Alors Kongô Shu Dai Bosatsu, réalisant intérieurement ce qui venait d'être exposé forma le mudra de la "Conquête des trois Mondes" et comme un bouton de lotus, son visage s'ouvrit d'un sourire. Alors, nouant ses sourcils et dardant son regard avec férocité, il découvrit ses crocs pareils à des épées. Adoptant la posture de la conquête il expliqua la syllabe adamantine "HUM": 
 >"HÛM".
 
-##CHAPITRE 5##
+## CHAPITRE 5
 Alors le Seigneur Toku Jisha Shôjôhosshô Nyôrai,continua par l'explication du principe sapiential du « Sceau de Sagesse » qui permet, grâce à l'existence naturelle, de comprendre l'égalité de tous les dharma:
 
 >« C'est Précisément parce que les attachements mondains sont purs que la haine est pure.
@@ -75,7 +75,7 @@ Alors le Seigneur Toku Jisha Shôjôhosshô Nyôrai,continua par l'explication d
 Alors, Kanjizai Dai Bosatsu réalisant intérieurement ce qui venait d'être exposé se relaxa et esquissa un sourire. Créant l'énergie qui ouvre le bouton de lotus il méditait sur la pureté du Désir et exprima l' « Essence de la multitude des désirs de la masse des Êtres »: 
 >"Hrih".
 
-##CHAPITRE 6##
+## CHAPITRE 6
 Alors le Seigneur Issai Sangai Shu Nyôrai continua par l'explication du principe directeur sapiential qui est le réceptacle de la « Grâce sacramentelle de tous les Bouddhas » en ces mots:
 
 >«Par l’administration du Kanjô il possible d'atteindre l'état de Sangai hô ô;
@@ -86,7 +86,7 @@ Alors le Seigneur Issai Sangai Shu Nyôrai continua par l'explication du princip
 Alors Kokûzô Dai Bosatsu réalisant intérieurement ce qui venait d'être exposé se relaxa et esquissa un sourire. Il saisit la perruque adamantine et spontanément l'attacha sur sa tête. Il exprima l' « Essence de la gemme sacramentelle de toutes les consécrations »: 
 >"Trâm".
 
-##CHAPITRE 7##
+## CHAPITRE 7
 Alors le Seigneur Issai Nyorai Chi In Nyorai continua par l'explication du principe directeur sapiential qui est l'onction des sceau de tous les Bouddha en ces termes:
 
 >«Former le sceau de tous les Bouddhas, c'est pratiquer le corps de tous les Bouddhas;
@@ -99,7 +99,7 @@ Alors le Seigneur Issai Nyorai Chi In Nyorai continua par l'explication du princ
 Alors le Seigneur, sur le point d'expliquer un peu plus cet Enseignement se relaxa et esquissa un sourire. Il forma le Sceau du « Grand Sacrement du poing de Foudre » et exprima la « Quintessence naturelle qui est le sacrement de l'accomplissement de tous ces sceaux adamantins »: 
 >« Ah ».
 
-##CHAPITRE 8##
+## CHAPITRE 8
 Alors le Seigneur Issai Mugeron Nyorai continua par l'explication du principe directeur sapiential de la roue des lettres en ces mots:
 
 >« Les dharma sont vides parce que sans nature propre;
@@ -112,7 +112,7 @@ Alors le seigneur Monjushiri sur le point d'expliquer un peu plus cet Enseigneme
 
 
 
-##CHAPITRE 9##
+## CHAPITRE 9
 Alors le Seigneur Issai Nyôrai [...]Dairin Nyôrai, reprit l'explication du principe directeur sapiential qui permet l'entrée dans la Grande Roue en ces termes:
 
 >« Entrer dans la l'Identité Adamantine est en-soi entrer dans la Roue du Dharma de tous les Ainsi-allés;
@@ -123,7 +123,7 @@ Alors le Seigneur Issai Nyôrai [...]Dairin Nyôrai, reprit l'explication du pri
 Alors, Tenbôrin Dai Bosatsu, sur le point d'expliquer un peu plus cet Enseignement se relaxa et esquissa un sourire. Tournant la Roue adamantine il expliqua l' « Essence de tous les sacrements adamantins »
 >: "Hûm".
 
-##CHAPITRE 10##
+## CHAPITRE 10
 Alors, le seigneur Issai Nyôrai Shuju Kuyôzô Kôdai Gishiki Nyôrai reprit l'explication du principe directeur sapiential qui manifeste l' « Excellence suprême de toutes les vénérations » en ces termes:
 
 >«Commencer à aspirer à l’Éveil est en-soi la pratique de la Grande-vénération des Ainsi-allés;
@@ -135,7 +135,7 @@ Alors, le seigneur Issai Nyôrai Shuju Kuyôzô Kôdai Gishiki Nyôrai reprit l'
 Alors, sur le point d'expliquer un peu plus cet Enseignement il se relaxa et esquissa un sourire et expliqua l' « Essence de tous les vajra »: 
 >« Om ».
 
-##CHAPITRE 11##
+## CHAPITRE 11
 Alors, Nô Jôbuku Jichiken In Nyôrai reprit l'explication du principe directeur sapiential qui est le dépôt-sapience où tout est circonvenu par la Discipline en ces termes:
 
 >«A cause de l'identité de tous les Êtres la Colère est l'Identité;
@@ -148,7 +148,7 @@ Alors, Nô Jôbuku Jichiken In Nyôrai reprit l'explication du principe directeu
 Alors Sai Issai Ma Dai bosatsu, sur le point d'expliquer un peu plus cet Enseignement se relaxa et esquissa un sourire. Brandissant l'emblème de Kongô Yasha et dévoilant ses Crocs adamantins il inspira la peur à tous les Ainsi-allés et exposa l' « Essence du Grand Rire de la Colère Adamantine »: 
 >« Hah ».
 
-##CHAPITRE 12##
+##CHAPITRE 12
 Alors Issai Byôdô Nyôrai reprit l'explication du principe directeur sapiential qui manifeste l'excellence suprême du sacrement de tous les dharmas en ces termes:
 
 >«A cause de l'identité de toute chose, la perfection de la Sagesse est l'Identité;
@@ -160,7 +160,7 @@ Saches qu'il en est ainsi. »
 Alors Kongô Shu Dai Bosatsu , entrant dans le samadhi de la « Grâce sacramentelle de tous les Bouddhas et Boddhisattva », exprima l' « Essence de tous les sacrements propices »: 
 >«Hum».
 
-##CHAPITRE 13##
+## CHAPITRE 13
 Alors le Seigneur ainsi-allé reprit l'explication du principe directeur sapiential qui fortifie tous les Êtres en ces termes:
 
 >«Tous les Êtres sont la matrice de l'Ainsi-allé parce queils sont tous le Soi de Fugen Bosatsu;
@@ -171,7 +171,7 @@ Alors le Seigneur ainsi-allé reprit l'explication du principe directeur sapient
 Alors toutes les divinités de la section extérieure au vajra sur le point d'expliciter un peu plus cet Enseignement crièrent de joie et exprimèrent la « Véritable essence de l'existence naturelle adamantine »: 
 >« Trî ».
 
-CHAPITRE 14
+## CHAPITRE 14
 Ensuite, les sept déesses s'inclinèrent au pieds du Bouddha et lui offrirent le « Crochet qui assemble et entraîne » ainsi que la « Véritable essence du pacte qui permet la destructions des maux et la réalisation de l'Eveil »: 
 >« Byoh ».
 
@@ -181,7 +181,7 @@ Là dessus les trois frères du Ciel Madhukara s'inclinèrent aux pieds du Boudd
 Ensuite, les quatre sœurs déesses offrirent le mantra de leur propre cœur: 
 >« Ham ».
 
-##CHAPITRE 15##
+## CHAPITRE 15
 Alors le Seigneur Muryômuhenkukyô Nyorai, Sur le point de donner cet Enseignement, se résolut à atteindre l'Ultime et reprit l'exposé du principe directeur sapiential qui manifeste le "Vajra de l'Identité" en ces termes:
 
 >« Parce que la Prajna-Paramita est inquantifiable, les Ainsi-allés sont inquantifiables;
@@ -191,7 +191,7 @@ Alors le Seigneur Muryômuhenkukyô Nyorai, Sur le point de donner cet Enseignem
 
 >Kongô Shu, si quiconque entend ce principe directeur, le reçoit, en préserve le texte et concentre son esprit sur son sens, il atteindra complètement cet Ultime dans la pratique du Bouddha et des Bodhisattvas. »
 
-##CHAPITRE 16##
+## CHAPITRE 16
 
 Alors, le Seigneur Dainchi Nyôrai qui a atteint la Nature-de-Dharma de tous les Mystères et qui est sans vaines divagations, exposa à nouveau le plus excellent principe directeur sapiential, qui est sans milieu, début ni fin et qui est a la nature du Dharma adamantin du serment de celui qui est "Grande Extase, adamantin et infaillible", en ces termes:
 
@@ -215,7 +215,7 @@ Alors, le Seigneur Dainchi Nyôrai qui a atteint la Nature-de-Dharma de tous les
 
 >Kongô Shu, si quiconque entend ce principe directeur sapiential original, et se levant chaque matin le récite ou l'écoute, il atteindra la paisible extase en tout, ainsi que le ravissement de l'esprit. Au surplus, il obtiendra l' « Accomplissement ultime du Pacte adamantin propice de la Grande Extase ». Dans cette vie il aura l' « Extase ravissante souveraine de tous les dharmas », et avançant dans les vies des Juroku Dai Bosatsu il atteindra la « Terre de l'Ainsi-allé brandissant le Vajra »: « Hûm » » .
 
-##CHAPITRE 17##
+## CHAPITRE 17
 
 Là-dessus, tous les Ainsi-allés et les Bodhisattva qui tiennent le Vajra, tous ces grands êtres, vinrent et se rassemblèrent. Au moment de démontrer cet Enseignement propice et libérateur qui provoque une réussite rapide ils louèrent Kongô Shu en ces termes:
 
