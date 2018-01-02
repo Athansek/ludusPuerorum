@@ -48,10 +48,11 @@ Il est aussi dit(T. 18: 45c):
 *Remarque au sujet de cette citation*: Dans ce passage il fait référence aux Siddhi mondaines et supramondaines du Hôbutsu que l'on obtient en récitant des mantras.    
 La "station de l'Espace" veut dire que Hôsshin est comme l'élément Espace, inobstrusif, contient tous les phénomènes et éternel. Comme toute chose en est dépendante on parle de station.  
 "Mystère du corps": le Triple Mystère du Hôbutsu(Hôsshin) est difficile à percevoir, même pour un Boddhisatva d'un niveau équivalent, comme peut il être ne serait-ce qu'aperçu par un Bodhisattva qui demeure encore dans une des dix terres? C'est pour cela qu l'on dit "*Mystère du Corps*". 
-Dans le "Bodaishinron" de Ryumyo Bosatsu il est écrit: " 
+Dans le "Bodaishinron" de Ryumyo Bosatsu (T. 32: 1665 572c) il est écrit: 
+>"
+>
+>
 
-Again, in the bodhisattva Någårjuna’s Treatise on the Bodhimind
-it is stated (T. 32: 572c):
 [Only] in the mantra teachings does one become a Buddha in
 this very body, and therefore they explain the methods of
 samådhi; in other teachings these are missing and have not
