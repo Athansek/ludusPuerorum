@@ -1,7 +1,7 @@
-#sur Le sens d'être Bouddha dans l'instant#
+# Sur Le sens d'être Bouddha dans l'instant
 *écrit par Henjo Kongô*
 
-##Preuves scripturaires##
+## Preuves scripturaires 
 *Question*: Divers sutras et traités insistent sur fait qu'il faut trois grands éons pour devenir un Bouddha. Quelles sont les preuves qui permettent de postuler le principe de l'atteinte de la bouddhéité dés ce corps?  
 *Réponse*: L'Ansi-venu l'a expliqué dans la Chambre aux trésors secrête.  
 
@@ -47,16 +47,9 @@ Il est aussi dit(T. 18: 45c):
 
 *Remarque au sujet de cette citation*: Dans ce passage il fait référence aux Siddhi mondaines et supramondaines du Hôbutsu que l'on obtient en récitant des mantras.    
 La "station de l'Espace" veut dire que Hôshin est comme l'élément Espace, inobstrusif, contient tous les phénomènes et éternel. Comme toute chose en est dépendante on parle de station.  
-"Mystère du corps": le Triple Mystère du
+"Mystère du corps": le Triple Mystère du Hôbutsu(Hôsshin) est difficile à percevoir, même pour un Boddhisatva d'un niveau équivalent, comme peut il être ne serait-ce qu'aperçu par un Bodhisattva qui demeure encore dans une des dix terres? C'est pour cela qu l'on dit "*Mystère du Corps*". 
+Dans le "Bodaishinron" de Ryumyo Bosatsu il est écrit: " 
 
-
-“Mystery of the body”: the three mysteries of the Dharma-Buddha
-are di‡cult to see even for [bodhisattvas of ] equal enlightenment,
-and so how can they be glimpsed by [bodhisattvas of ] the ten
-stages?—therefore it is called “mystery of the body.”
-381c
-Becoming a Buddha
-67
 Again, in the bodhisattva Någårjuna’s Treatise on the Bodhimind
 it is stated (T. 32: 572c):
 [Only] in the mantra teachings does one become a Buddha in
