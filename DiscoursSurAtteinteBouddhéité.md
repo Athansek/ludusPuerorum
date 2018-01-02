@@ -3,7 +3,7 @@
 
 ## Preuves scripturaires 
 *Question*: Divers sutras et traités insistent sur fait qu'il faut trois grands éons pour devenir un Bouddha. Quelles sont les preuves qui permettent de postuler le principe de l'atteinte de la bouddhéité dés ce corps?  
-*Réponse*: L'Ansi-venu l'a expliqué dans la Chambre aux trésors secrête.  
+*Réponse*: L'Ansi-venu l'a expliqué dans les Enseignements contenus dans la "*Chambre aux trésors secrête*".  
 
 *Question*: Comment est-ce expliqué dans ces sutra?  
 *Réponse*: Dans le Kongôchô Kyô(T. 19:320c) il est expliqué:  
@@ -40,13 +40,13 @@ Dans le Dainichi Kyô il est dit:(T. 18: 21a):
 
 Il est aussi dit(T. 18: 45c):
 >"Si vous souhaitez l'accomplissement dans cette vie,  
->suivez une pratique appropriée et méditez dessus.  
+>suivez une pratique appropriée et méditez la.  
 >Si vous recevez un rite mantrique de la part d'un vénérable,  
 >Pratiquez le et fusionnez avec la Divinité, vous  
 >réussirez."    
 
 *Remarque au sujet de cette citation*: Dans ce passage il fait référence aux Siddhi mondaines et supramondaines du Hôbutsu que l'on obtient en récitant des mantras.    
-La "station de l'Espace" veut dire que Hôshin est comme l'élément Espace, inobstrusif, contient tous les phénomènes et éternel. Comme toute chose en est dépendante on parle de station.  
+La "station de l'Espace" veut dire que Hôsshin est comme l'élément Espace, inobstrusif, contient tous les phénomènes et éternel. Comme toute chose en est dépendante on parle de station.  
 "Mystère du corps": le Triple Mystère du Hôbutsu(Hôsshin) est difficile à percevoir, même pour un Boddhisatva d'un niveau équivalent, comme peut il être ne serait-ce qu'aperçu par un Bodhisattva qui demeure encore dans une des dix terres? C'est pour cela qu l'on dit "*Mystère du Corps*". 
 Dans le "Bodaishinron" de Ryumyo Bosatsu il est écrit: " 
 
@@ -67,8 +67,7 @@ with the body born of his parents.
 It is in accordance with these corroborative passages based on
 doctrine and reason that this principle [of becoming a Buddha in
 this very body] is established.
-II. The Verse on Becoming a Buddha
-in This Very Body
+** Vers sur l'atteinte de la Bouddheité dans ce corps
 [Question:] What are the di›erent meanings of the words [“becoming
 a Buddha in this very body” as expounded] in these sutras and
 treatise?
@@ -113,9 +112,7 @@ I (Vairocana) awoke to original non-birth, transcended the
 path of speech,
 Obtained liberation from all faults, dissociated myself from
 causes and conditions,
-382a
-Becoming a Buddha
-69
+
 And knew emptiness, which is like empty space.
 This represents the meaning [of the six elements]. His (Vairocana’s)
 seed-mantra is: A vi ra h¥μ khaμ h¥μ.5 That the letter
