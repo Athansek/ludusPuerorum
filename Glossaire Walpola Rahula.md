@@ -13,16 +13,11 @@
 |Ajjava |Arjava | Honnête, sincère, droit |Junjiki |
 |Akkodha |Akrodha |Libéré de la colère | Fushin |
 |Akusala |Akusala | Déméritoire, impropre, mauvais |Fuzen |
-
-Alaya vijnana: Araya Shiki
-
-Amata
-
-Anagami
-
-Anapanasati
-
-Anatta
+|Alaya vijnana |Alaya vijnana| Connaissance de Soi, conscience receptacle, conscience de fond | Araya Shiki |
+|Amata |Amrta | Ambroisie, immortel | Kanro, Fushi|
+|Anagami |Anagamin | Sans-retour | Furai, Anagami|
+|Anapanasati | Anapanasati | Attention à la respiration | Nenhanan |
+|Anatta | Anatman | Non-soi, dépourvu de Soi | Muga |
 
 Anicca
 
