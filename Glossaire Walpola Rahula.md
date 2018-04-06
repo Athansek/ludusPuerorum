@@ -18,14 +18,10 @@
 |Anagami |Anagamin | Sans-retour | Furai, Anagami|
 |Anapanasati | Anapanasati | Attention à la respiration | Nenhanan |
 |Anatta | Anatman | Non-soi, dépourvu de Soi | Muga |
-
-Anicca
-
-Arahant: Arakan
-
-Ariya attangika magga
-
-Ariya sacca
+|Anicca | Anitya | Impermanent | Mujo |
+|Arahant | Arahant| Méritant, digne, respectable, vénérable, saint | Ôju, Arakan |
+| Ariya attangika magga | Aryastangika marga| Octuple Noble Sentier | Hasshôdô |
+|Ariya sacca | Arya sattya | 4 nobles vérités | Shishôtai, Shitai |
 
 Assada
 
