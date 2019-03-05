@@ -3,9 +3,9 @@
 ## Introduction
 Les dragons sont des créatures fondamentales des cultures extrêmes orientales
 
-##Dans la culture Indienne
+## Dans la culture Indienne
 
-###Un pieux orateur
+### Un pieux orateur
 Les nagas sont la progéniture de leur père Kasyâpa, fils de Brahma et
 de leur mère Kadru. Celle ci eut une dispute avec une de ses sœur au
 sujet de la couleur de l'extrémité de la queue du cheval d'Indra, la
@@ -34,7 +34,7 @@ sauvés par un deus ex machina qui selon les sources peut être la
 propre sœur de Vasuki nommée Jaratkaru2 ou bien Astika, fils de
 l'hermite nommé aussi  Jaratkaru.
 
-###Méprises au sujet d'un éléphant ?
+### Méprises au sujet d'un éléphant ?
 Dans l'Atharva Veda il est fait mention d'un roi des Nagas nommé :
 Dritarâshtra-Airâvata. Au fil des siècles et des écrits les noms vont
 finir par être dissociés.Finalement dans le Maharabatha, Airâvata est
