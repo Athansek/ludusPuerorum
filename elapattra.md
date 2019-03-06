@@ -39,6 +39,9 @@ On trouve des trace d'Elapattra
 ### Un protecteur
 ## Dans le Bouddisme du grand véhicule
 ## Un gardien de trésors
+Dans le recit de ses voyages, le moine et pelerin Xuanzang(jp:Genjo,Tôsô,Genjo Daishi,Tôsô Sanzô) indique que Elapattra est un des trois Naga Raja à avoir reçu une partie des reliques du Bouddha. Il a visité le bassin où il réside au nord ouest de Taxila (jp:Tasashira) et raconte qu'aux temps de Kasyapa Tathagatha(jp:Kashô Nyôrai) il était un moine qui dans un accés de colère détruisit une cardamome(jp:Shozoku).
+
+
 
 	
 ## Notes
