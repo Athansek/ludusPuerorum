@@ -1,4 +1,4 @@
-#Homophonie, courant#
+# Homophonie, courant
 
 * L'eau et son écoulement on une importance capitale dans le Shingon:Kanjô, eau de sapience->BAN;
 * Le flot de l'eau se dit en prononciation sino-japonaise "Ryû" et japonais "naga";
