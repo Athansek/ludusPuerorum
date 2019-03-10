@@ -23,7 +23,7 @@ Tour à tour les nagas proposèrent différentes solutions mettant en
 émit l'idée de voler les ustensiles dédiés à la cérémonie.
 
 L'assemblée vint à considérer de procéder à l'assassinat du roi. Alors
-Elâpattra montât en chaire et fit assaut d'éloquence pour dissuader
+Elâpattra (jp:Eirahatara, Irahatsuryū ō) prit la parole et fit assaut d'éloquence pour dissuader
 ses congénères d'utiliser la force. Son argument principal étant qu'il
 ne servait à rien d'aller à l'encontre de la volonté des Dieux,
 d'autant qu'il avait eu la préscience que Brahma lui-même avait décrété
@@ -32,14 +32,17 @@ que seuls les nagas dévoyés seraient victimes du feu.
 ### Méprises au sujet d'un éléphant ?
 Dans l'Atharva Veda il est fait mention d'un roi des Nagas nommé
 Dritarâshtra-Airâvata. Petit a petit, vraissemblablement pour des raisons de commodité, on en vint à appeler ce Naga Raja Airâvata. Finalement dans le Maharabatha, Airâvata est plusieurs fois cité comme ancêtre des nagas. La liste des nagas en appendice de la saga cite Dritarâshtra, Airâvata et Elâpatra (Feuille de cardamome), une forme prakrite (c'est à dire populaire) d'Airâvata.
-Il apparait que la religion Hindoue connait un célébre Airâvata en la personne de la monture d'Indra: un éléphant blanc à quatre défenses. Le même terme peut donc désigner un Roi des dragons ou un éléphant divin.
+Il apparait que la religion Hindoue connait un célébre Airâvata (jp:Irana, Irabana, Iran, Eirashô, Irahana) en la personne de la monture d'Indra: un éléphant blanc à quatre défenses. Le même terme peut donc désigner un Roi parmis les dragons ou un éléphant divin.
 ## Dans le Boudhhisme ancien
 ### Un des premier auditeurs de l'Honoré des mondes
 On trouve des trace d'Elapattra
 ### Un protecteur
+
+La parita
+
 ## Dans le Bouddisme du grand véhicule
 ## Un gardien de trésors
-Dans le recit de ses voyages, le moine et pelerin Xuanzang(jp:Genjo,Tôsô,Genjo Daishi,Tôsô Sanzô) indique que Elapattra est un des trois Naga Raja à avoir reçu une partie des reliques du Bouddha. Il a visité le bassin où il réside au nord ouest de Taxila (jp:Tasashira) et raconte qu'aux temps de Kasyapa Tathagatha(jp:Kashô Nyôrai) il était un moine qui dans un accés de colère détruisit une cardamome(jp:Shozoku).
+Dans le recit de ses voyages, le moine et pelerin Xuanzang(jp:Genjo,Tôsô,Genjo Daishi,Tôsô Sanzô) indique que Elapattra est un des trois Naga Raja à avoir reçu une partie des reliques du Bouddha. Il a visité le bassin où il réside au nord ouest de Taxila (jp:Tasashira) et raconte qu'aux temps de Kasyapa Tathagatha(jp:Kashô Nyôrai) il était un moine qui dans un accés de colère détruisit une cardamome(jp:Shozoku). La rétribution de son acte fut sa réincarnation en Naga. 
 
 
 
