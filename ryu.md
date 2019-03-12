@@ -1,6 +1,7 @@
 # RYU, Naga
 
 ## Réseau phonétique
+------|--------
 Naga | Long, dragon, courant, flot, regarder, surveiller, une vue, |
 Ryu | Rude, barbare, dragon, rétention de l'urine, forme d'une montagne, l'or, faiblesse, infirmité | 
 Tatsu | Dragon, érigé, debout, départ, émission, réveil, construire, accomplir, atteindre, sutra, refuser, interdire, jugement, loutre |
