@@ -46,29 +46,15 @@ Il est aussi dit(T. 18: 45c):
 >réussirez."    
 
 *Remarque au sujet de cette citation*: Dans ce passage il fait référence aux Siddhi mondaines et supramondaines du Hôbutsu que l'on obtient en récitant des mantras.    
-La "station de l'Espace" veut dire que Hôsshin est comme l'élément Espace, inobstrusif, contient tous les phénomènes et éternel. Comme toute chose en est dépendante on parle de station.  
+La "station de l'Espace" veut dire que Hôsshin est comme l'élément Espace: inobstrusif, il contient tous les phénomènes et il est éternel. Comme tout en est dépendante on parle de station.  
 "Mystère du corps": le Triple Mystère du Hôbutsu(Hôsshin) est difficile à percevoir, même pour un Boddhisatva d'un niveau équivalent, comme peut il être ne serait-ce qu'aperçu par un Bodhisattva qui demeure encore dans une des dix terres? C'est pour cela qu l'on dit "*Mystère du Corps*". 
 Dans le "Bodaishinron" de Ryumyo Bosatsu (T. 32: 1665 572c) il est écrit: 
->"
->
->
-
-[Only] in the mantra teachings does one become a Buddha in
-this very body, and therefore they explain the methods of
-samådhi; in other teachings these are missing and have not
-been recorded.
-<[Remarks:] “They explain the methods of samådhi” refers to
-the samådhi realized by the Dharma body itself. “Other teachings”
-are the exoteric teachings expounded by the other-enjoyment body.>
-It also says (T. 32: 574c):
-If someone seeking the Buddha’s wisdom should penetrate
-the bodhi-mind,
-He will quickly realize the stage of great enlightenment
-with the body born of his parents.
-It is in accordance with these corroborative passages based on
-doctrine and reason that this principle [of becoming a Buddha in
-this very body] is established.
-** Vers sur l'atteinte de la Bouddheité dans ce corps
+>"*Il n'y a que dans l'Enseignement sur les Mantras que l'on devient un Bouddha dés ce corps. Cela implique que l'on y apprend les methodes du Samadhi. On ne le trouve pas dans les autres doctrines où cela n'est pas consigné.*" 
+Remarques: "*[...]on y apprend les méthodes du Samadhi[...]*" se réfère au Samadhi du Hôsshin lui même. Les "*autres doctrines*" sont les doctinres exotériques exposées par les divers Juyushin. 
+Le Bodaishinron(T.32:574c) indique aussi:
+>"*Si celui qui recherche la Sagesse du Bouddha devait pénétrer le Coeur de Bodhi, il réalisera la Grande Illumination dans le corps reçu de ses parents.*"
+Le principe de Sokushinjôbutus est établi en accord avec ces passages basés sur la Doctrine et la Raison.
+## Vers sur l'atteinte de la Bouddheité dans ce corps
 [Question:] What are the di›erent meanings of the words [“becoming
 a Buddha in this very body” as expounded] in these sutras and
 treatise?
