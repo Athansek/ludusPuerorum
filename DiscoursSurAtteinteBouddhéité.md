@@ -44,38 +44,27 @@ Il est aussi dit(T. 18: 45c):
 >Si vous recevez un rite mantrique de la part d'un vénérable,  
 >Pratiquez le et fusionnez avec la Divinité, vous  
 >réussirez."    
+*Remarque au sujet de cette citation*: Dans ce passage il fait référence aux Siddhi mondaines et supramondaines du Hôbutsu que l'on obtient en récitant des mantras. 
 
-*Remarque au sujet de cette citation*: Dans ce passage il fait référence aux Siddhi mondaines et supramondaines du Hôbutsu que l'on obtient en récitant des mantras.    
 La "station de l'Espace" veut dire que Hôsshin est comme l'élément Espace: inobstrusif, il contient tous les phénomènes et il est éternel. Comme tout en est dépendante on parle de station.  
 "Mystère du corps": le Triple Mystère du Hôbutsu(Hôsshin) est difficile à percevoir, même pour un Boddhisatva d'un niveau équivalent, comme peut il être ne serait-ce qu'aperçu par un Bodhisattva qui demeure encore dans une des dix terres? C'est pour cela qu l'on dit "*Mystère du Corps*". 
 Dans le "Bodaishinron" de Ryumyo Bosatsu (T. 32: 1665 572c) il est écrit: 
 >"*Il n'y a que dans l'Enseignement sur les Mantras que l'on devient un Bouddha dés ce corps. Cela implique que l'on y apprend les methodes du Samadhi. On ne le trouve pas dans les autres doctrines où cela n'est pas consigné.*" 
-Remarques: "*[...]on y apprend les méthodes du Samadhi[...]*" se réfère au Samadhi du Hôsshin lui même. Les "*autres doctrines*" sont les doctinres exotériques exposées par les divers Juyushin. 
+**Remarques:** "*[...]on y apprend les méthodes du Samadhi[...]*" se réfère au Samadhi du Hôsshin lui même. Les "*autres doctrines*" sont les doctinres exotériques exposées par les divers Juyushin. 
 Le Bodaishinron(T.32:574c) indique aussi:
 >"*Si celui qui recherche la Sagesse du Bouddha devait pénétrer le Coeur de Bodhi, il réalisera la Grande Illumination dans le corps reçu de ses parents.*"
 Le principe de Sokushinjôbutus est établi en accord avec ces passages basés sur la Doctrine et la Raison.
 ## Vers sur l'atteinte de la Bouddheité dans ce corps
-[Question:] What are the di›erent meanings of the words [“becoming
-a Buddha in this very body” as expounded] in these sutras and
-treatise?
-[Answer:] Here are [two] stanzas:
-The six elements are unobstructed and eternally in a state
-of yoga; <—Essence>
-The four kinds of ma√∂a[la]s are not separate from one
-another; <—Aspect>
-When empowered by the three mysteries, [Buddhahood] is
-quickly manifested. <—Function>
-K¥kai Texts
-68
-The manifold interconnectedness of Indra’s net is called
-“this very body.” <—Nonobstruction>
-Naturally endowed with sarvajñåna;
-Mental functions and mind-kings are more numerous than
-the dust motes of [countless] lands,
-Each possessed of the five wisdoms, of infinite wisdom;
-And because of the power [to function] as a perfect mirror
-there is the real wisdom of enlightenment. <—Becoming
-a Buddha>4
+**Question:** Quels sont les sens des mot "*Devenir un Bouddha dés ce corps*" selon ces sutras et traités? 
+**Réponse:** Voici deux strophes:  
+> Les six éléments sont libres et éternellement en état de Yoga;  
+> Les quatres types de Manda(la)s ne sont pas séparés les uns des autres;
+> Lorsque l'on est encapacité pas le Triple-Mystères, la bouddhéité est atteinte immédiatement;
+> Les multiples interconections du "Filet d'Indra" sont "*dés ce corps*".
+> Naturellement dôtés de l'Omnisapience, les fonctions mentales et les "rois parmis les esprits" sont plus nombeux que les grains de poussières des innombrables mondes;
+> Chacuns possédés des Cinq sapiences, d'infinies sapiences;
+> Et à cause du pouvoir d'opérer comme un miroir parfait existe la Véritable SApience de l'Eveil.
+
 Interpretative Remarks: These two stanzas in eight lines extol
 the four words “becoming a Buddha in this very body” (soku-shinjø-
 butsu). That is to say, these four words contain infinite meaning,
