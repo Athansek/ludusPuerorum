@@ -57,13 +57,13 @@ Le principe de Sokushinjôbutus est établi en accord avec ces passages basés s
 ## Vers sur l'atteinte de la Bouddheité dans ce corps
 **Question:** Quels sont les sens des mot "*Devenir un Bouddha dés ce corps*" selon ces sutras et traités? 
 **Réponse:** Voici deux strophes:  
-> Les six éléments sont libres et éternellement en état de Yoga;  
-> Les quatres types de Manda(la)s ne sont pas séparés les uns des autres;
-> Lorsque l'on est encapacité pas le Triple-Mystères, la bouddhéité est atteinte immédiatement;
-> Les multiples interconections du "Filet d'Indra" sont "*dés ce corps*".
-> Naturellement dôtés de l'Omnisapience, les fonctions mentales et les "rois parmis les esprits" sont plus nombeux que les grains de poussières des innombrables mondes;
-> Chacuns possédés des Cinq sapiences, d'infinies sapiences;
-> Et à cause du pouvoir d'opérer comme un miroir parfait existe la Véritable SApience de l'Eveil.
+> Les six éléments sont entremélés et éternellement en harmonie;  
+> Les quatres types de Manda(la)s ne sont pas séparés les uns des autres;  
+> Lorsque l'on est encapacité pas le Triple-Mystères, la bouddhéité est atteinte immédiatement;  
+> Les multiples interconections du "Filet d'Indra" sont "*dés ce corps*".  
+> Naturellement dôtés de l'Omnisapience, les fonctions mentales et les "rois parmis les esprits" sont plus nombeux que les grains de poussières des innombrables mondes; 
+> Chacuns sont possédés des Cinq sapiences, des infinies sapiences;  
+> Et à cause du pouvoir d'opérer comme un miroir parfait, existe la Véritable Sapience d'Eveil.  
 
 Interpretative Remarks: These two stanzas in eight lines extol
 the four words “becoming a Buddha in this very body” (soku-shinjø-
