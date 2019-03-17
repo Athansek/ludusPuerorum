@@ -57,9 +57,12 @@ Le principe de Sokushinjôbutus est établi en accord avec ces passages basés s
 ## Vers sur l'atteinte de la Bouddheité dans ce corps
 **Question:** Quels sont les sens des mot "*Devenir un Bouddha dés ce corps*" selon ces sutras et traités? 
 **Réponse:** Voici deux strophes:  
-> Les six éléments sont entremélés et éternellement en harmonie;  
-> Les quatres types de Manda(la)s ne sont pas séparés les uns des autres;  
-> Lorsque l'on est encapacité pas le Triple-Mystères, la bouddhéité est atteinte immédiatement;  
+> Les six éléments s'interpénètrent librement et sont éternellement en harmonie (avec le Buddha);
+> *rokudai muge jô yuga*
+> Les quatre Manda(la)s ne sont pas différents les uns des autres;
+> *Shishu manda kaku furisô*
+> Lorsque l'on est encapacité pas le Triple-Mystères, la bouddhéité est atteinte immédiatement;
+T2428_.77.0381c18
 > Les multiples interconections du "Filet d'Indra" sont "*dés ce corps*".  
 > Naturellement dôtés de l'Omnisapience, les fonctions mentales et les "rois parmis les esprits" sont plus nombeux que les grains de poussières des innombrables mondes; 
 > Chacuns sont possédés des Cinq sapiences, des infinies sapiences;  
