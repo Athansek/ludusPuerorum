@@ -57,7 +57,7 @@ Le principe de Sokushinjôbutus est établi en accord avec ces passages basés s
 ## Vers sur l'atteinte de la Bouddheité dans ce corps
 **Question:** Quels sont les sens des mot "*Devenir un Bouddha dés ce corps*" selon ces sutras et traités? 
 **Réponse:** Voici deux strophes:  
-> Les six éléments s'interpénètrent librement et sont éternellement en harmonie (avec le Buddha);
+> Les six éléments interagissent librement et sont éternellement en harmonie (avec le Buddha);
 > *rokudai muge jô yuga*
 > Les quatre Manda(la)s ne sont pas différents les uns des autres;
 > *Shishu manda kaku furisô*
