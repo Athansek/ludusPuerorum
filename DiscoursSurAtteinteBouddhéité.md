@@ -70,7 +70,7 @@ Le principe de Sokushinjôbutus est établi en accord avec ces passages basés s
 > Chacuns sont possédés des Cinq sapiences, des infinies sapiences;      
 > *Kaku gu gochi musaichi*     
 > Par la puissance (de la Sapience de) Mirroir-parfait    
-> *Enkyô riki ko*
+> *Enkyô riki ko*  
 > Existe la Sapience de la "Conscience Brute".  
 > *Jikkaku chi*  
 
