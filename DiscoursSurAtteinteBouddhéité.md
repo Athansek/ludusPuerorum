@@ -67,8 +67,8 @@ Le principe de Sokushinjôbutus est établi en accord avec ces passages basés s
 > *Jûjû Taimô myô sokushin*  
 > Les fonctions mentales et les "rois parmis les esprits" sont plus nombeux que les grains de poussière des mondes;  
 > *Shinju shinô ka setsujin*
-> Chacuns sont possédés des Cinq sapiences, des infinies sapiences;
-> *Kaku gu gochi musaichi*
+> Chacuns sont possédés des Cinq sapiences, des infinies sapiences;  
+> *Kaku gu gochi musaichi* 
 > Et à cause du pouvoir d'opérer comme un miroir parfait, existe la Véritable Sapience d'Eveil.  
 
 Interpretative Remarks: These two stanzas in eight lines extol
