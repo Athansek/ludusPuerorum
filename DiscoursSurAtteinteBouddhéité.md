@@ -88,7 +88,8 @@ the first [stanza] there are again four [sections]: the first line
 fourth nonobstruction. In the following stanza there are [also] four
 [sections]: the first [line] gives the Buddhahood of the Dharma-
 Buddha, the next expresses innumerableness, the third reveals
-perfection, and the last presents the reason.  
+perfection, and the last presents the reason. 
+
 **1. The Six Elements Are Unobstructed and Eternally in a State of Yoga**
 Remarks: The “six elements” are the five elements plus consciousness.
 In the Mahåvairocana Sutra it says (T. 18: 9b):
@@ -272,9 +273,8 @@ in a state of yoga.” “Unobstructed” means “[inter]penetrating freely”;
 “eternally” means “immovable,” “indestructible,” and so on; “yoga”
 is translated as “intercorrespondence,” and intercorrespondent
 [inter]penetration is, namely, the meaning of “very” (soku) [in the
-phrase “becoming a Buddha in this very body”].
-K¥kai Texts
-74
+phrase “becoming a Buddha in this very body”].  
+
 **1. The Four Kinds of Ma√∂a[la]s Are Not Separate from One Another**  
 As for “The four kinds of ma√∂a[la]s are not separate from one
 another,” the Mahåvairocana Sutra (T. 18: 44a) states that all
@@ -322,6 +322,7 @@ and this is not separate from that, just as space and light are unobstructed
 it says, “The four kinds of ma√∂a[la]s are not separate from one
 another.” “Not separate” is, namely, the meaning of “very” (soku)
 [in the phrase “becoming a Buddha in this very body”].
+
 **1. When Empowered by the Three Mysteries, [Buddhahood] Is Quickly Manifested**  
 As for “When empowered by the three mysteries, [Buddhahood]
 is quickly manifested,” the “three mysteries” are 1) the mystery
@@ -468,6 +469,7 @@ three bodies. Therefore it is said, “[Buddhahood] is quickly manifested.”
 The meaning of “in this very body” (sokushin) is just like
 that of the ordinary [terms] “at that very moment” (sokuji; i.e.,
 immediately) or “on that very day” (sokujitsu; i.e., on the same day).
+
 **1. The Manifold Interconnectedness of Indra’s Net Is Called “This Very Body”**  
 As for “The manifold interconnectedness of Indra’s net is called
 ‘this very body,’” this gives a simile to explain the perfect interfusion
@@ -499,6 +501,7 @@ dharmas are completely equal and one; they are one and yet
 immeasurable [in number], immeasurable [in number] and yet
 one, and they never become confused. Therefore it says, “The manifold
 interconnectedness of Indra’s net is called ‘this very body.’”
+ 
 **1. Naturally Endowed with Sarvajñåna**  
 As for “Naturally endowed with sarvajñåna,” in the Mahåvairocana
 Sutra it says (T. 18: 22bc):
@@ -547,6 +550,7 @@ jñånam), which translates as “all-knowing wisdom.”19 As regards
 All Buddhas are each possessed of the five wisdoms, the
 thirty-seven wisdoms, and wisdoms [as innumerable as] the dust
 motes of [countless] lands.
+
 **1. Mental Functions and Mind-kings Are More Numerous Than the Dust Motes of [Countless] Lands / Each Possessed of the Five Wisdoms, of Infinite Wisdom**  
 The next two lines (“Mental functions and mind-kings are more
 numerous than the dust motes of [countless] lands / Each possessed
@@ -570,6 +574,7 @@ one –consciousness.21
 mind-king and mental function each has these [five wisdoms].
 “Infinite wisdom” means [that this wisdom is] lofty, extensive,
 and innumerable.
+
 **1. And Because of the Power [to Function]as a Perfect Mirror There Is the Real Wisdom of Enlightenment**  
 As for “And because of the power [to function] as a perfect mirror
 there is the real wisdom of enlightenment,” this gives the reason.
