@@ -67,9 +67,12 @@ Le principe de Sokushinjôbutus est établi en accord avec ces passages basés s
 > *Jûjû Taimô myô sokushin*  
 > Les fonctions mentales et les "rois parmis les esprits" sont plus nombeux que les grains de poussière des mondes;  
 > *Shinju shinô ka setsujin*
-> Chacuns sont possédés des Cinq sapiences, des infinies sapiences;  
-> *Kaku gu gochi musaichi* 
-> Et à cause du pouvoir d'opérer comme un miroir parfait, existe la Véritable Sapience d'Eveil.  
+> Chacuns sont possédés des Cinq sapiences, des infinies sapiences;    
+> *Kaku gu gochi musaichi*   
+> Par la puissance (de la Sapience de) Mirroir-parfait  
+> *Enkyô riki ko*
+> Existe la Sapience de la "Conscience Brute".
+> *Jikkaku chi*
 
 Interpretative Remarks: These two stanzas in eight lines extol
 the four words “becoming a Buddha in this very body” (soku-shinjø-
