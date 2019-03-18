@@ -59,13 +59,13 @@ Le principe de Sokushinjôbutus est établi en accord avec ces passages basés s
 **Réponse:** Voici deux strophes:  
 > Les six éléments interagissent librement et sont éternellement en harmonie (avec le Buddha);    
 > *rokudai muge jô yuga*  
-> Les quatre Manda(la)s ne sont pas différents les uns des autres;  
+> Les quatre Manda(la)s sont des aspects d'une même chose;  
 > *Shishu manda kaku furisô*  
-> Lorsque l'on reçoit la Grâce du Triple-Mystères, la vérité apparait très vite;  
+> Lorsque l'on reçoit la Grâce du Triple-Mystères, la vérité apparait promptement;  
 > *Sanmistsu kaji sokushitsu ken*  
-> Les multiples interconections du "Filet d'Indra" sont appellées "*(Le Bouddha est) exactement ce corps*".  
+> Les innombrables interconections du "Filet d'Indra" sont appellées "*(Le Bouddha est) exactement ce corps*".  
 > *Jûjû Taimô myô sokushin*  
-> Les fonctions mentales et les "rois parmis les esprits" sont plus nombeux que les grains de poussière des mondes;  
+> Les fonctions mentales et les "rois parmis les esprits" (sont plus nombreux que les) grains de poussière des mondes;  
 > *Shinju shinô ka setsujin*
 > Chacuns sont possédés des Cinq sapiences, des infinies sapiences;      
 > *Kaku gu gochi musaichi*     
@@ -296,14 +296,14 @@ characteristics and minor marks. Painting their images is
 also called a great ma√∂ala. Again, accomplishing deity yoga
 by means of the five phases11 is also called “great wisdomseal”
 [and this too corresponds to the great ma√∂ala].
-2. Samaya-ma√∂ala: it is, namely, the insignia held [by the
+1. Samaya-ma√∂ala: it is, namely, the insignia held [by the
 deities], such as the sword, wheel-treasure,12 vajra, lotus, and
 the like. If one draws their images, this is also [a samayama√∂
 ala]. Again, joining one’s two hands together [with the
 fingers interlocked] in the adamantine bind and generating
 the formation of seals (mudrås)13 is also called “samaya wisdom-
 seal” [and this too corresponds to the samaya-ma√∂ala].
-3. Dharma-ma√∂ala: it is the seed[-syllable] and mantra of
+1. Dharma-ma√∂ala: it is the seed[-syllable] and mantra of
 one’s deity. If one writes the seed-syllables [of various deities],
 each in its proper position, this is [also a dharma-ma√∂ala].
 Again, the samådhis of the Dharma body and the words and
@@ -312,7 +312,7 @@ meanings of all scriptures are all also called “dharma wisdomseals”
 383a
 Becoming a Buddha
 75
-4. Karma-ma√∂ala: it is, namely, the various deportments and
+1. Karma-ma√∂ala: it is, namely, the various deportments and
 activities of Buddhas, bodhisattvas, and so on. [Images] either
 cast in metal or molded in clay too are also called “karma wisdom-
 seals” [and these too correspond to the karma-ma√∂ala].
@@ -471,7 +471,7 @@ three bodies. Therefore it is said, “[Buddhahood] is quickly manifested.”
 The meaning of “in this very body” (sokushin) is just like
 that of the ordinary [terms] “at that very moment” (sokuji; i.e.,
 immediately) or “on that very day” (sokujitsu; i.e., on the same day).
-4. The Manifold Interconnectedness of Indra’s Net
+1. The Manifold Interconnectedness of Indra’s Net
 Is Called “This Very Body”
 As for “The manifold interconnectedness of Indra’s net is called
 ‘this very body,’” this gives a simile to explain the perfect interfusion
@@ -551,7 +551,7 @@ jñånam), which translates as “all-knowing wisdom.”19 As regards
 All Buddhas are each possessed of the five wisdoms, the
 thirty-seven wisdoms, and wisdoms [as innumerable as] the dust
 motes of [countless] lands.
-6. Mental Functions and Mind-kings
+1. Mental Functions and Mind-kings
 Are More Numerous Than the Dust Motes
 of [Countless] Lands / Each Possessed of the
 Five Wisdoms, of Infinite Wisdom
@@ -577,7 +577,7 @@ one –consciousness.21
 mind-king and mental function each has these [five wisdoms].
 “Infinite wisdom” means [that this wisdom is] lofty, extensive,
 and innumerable.
-7. And Because of the Power [to Function]
+1. And Because of the Power [to Function]
 as a Perfect Mirror There Is the
 Real Wisdom of Enlightenment
 As for “And because of the power [to function] as a perfect mirror
